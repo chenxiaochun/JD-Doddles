@@ -9,3 +9,7 @@
 ## 2016年双11 - 好物低价上京东
 
 <img width="500" src="http://img13.360buyimg.com/uba/jfs/t10903/215/2382847678/51781/7f65c587/59f6c5b4N3fc47a60.jpg">
+
+## 2016年618 - 品质狂欢节
+
+<img src="http://img12.360buyimg.com/uba/jfs/t7768/80/3394786082/62474/25e4d41d/59f6c688Nb00f794b.jpg">
